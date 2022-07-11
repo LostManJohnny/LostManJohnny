@@ -1,0 +1,1 @@
+Hi I'm @LostManJohnny, a constantly learning individual with a passion for solving problems and automating my life with code. With a Bac. Degree in Computer Science and finishing a business information technology diploma, I am ready for whatever challenges awaits me. 
